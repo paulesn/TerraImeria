@@ -1,0 +1,1 @@
+This documents provide the place for the template folder structure because git does not save empty folders
