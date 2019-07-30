@@ -1,0 +1,2 @@
+Cassius is the son of Nyle Meyten, the current CEO of the SeJaBe Cooperation which build the Starship Imeria. He wanted to leave the shadow of his vather so he entered the security corps because Nyen has no control over the recutement process there.
+He never intended to stay in the security but rather wanted to rise to command. On the alie planet his goal is to find a way back.
